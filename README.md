@@ -43,7 +43,6 @@ Atualmente, utilizo minhas habilidades em design para realizar meus projetos e p
 
 - 📧 Email: farleypyternew@gmail.com
 - 📱 Telefone/Celular: +55 31 99723-9066
-- 🏠 Endereço: Rua Sete de Setembro, 52 - Fonte Grande / Cons. Lafaiete - Minas Gerais
 
 ## Redes Sociais 🌐
 
